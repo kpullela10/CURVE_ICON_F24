@@ -1,1 +1,0 @@
-# CURVE_ICON_F24
